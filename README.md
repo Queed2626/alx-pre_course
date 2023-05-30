@@ -1,1 +1,1 @@
-my first readme 
+Call me Asta kun
